@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @MushieKings, I love mushrooms!
+- 👋 Hi, I’m MushieKings, I love mushrooms!
 - 👀 I’m interested in great ideas that promote independence, balance and freedom. I love the open source community and believe it is one of the keys to the future.
 - 🌱 I’m currently learning lots of things
 - 💞️ I’m looking to collaborate on... to be discovered...
