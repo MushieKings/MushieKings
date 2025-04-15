@@ -5,4 +5,4 @@
 - 📫 How to reach me: mushiekings@gmail.com or discord: https://discord.gg/aXr2ZyEB2v
 - 📫 How to reach me: Discord: https://discord.gg/aXr2ZyEB2v
 - 😄 Pronouns: Mushrooms have as much as 36,000 sexes
-- ⚡ Fun fact: "Mushroom spores are electron-dense and can survive in the vacuum of space. Additionally, their outer layer is actually metallic and of a purple hue, which naturally allows the spore to deflect ultraviolet light. And as if all this wasn’t unique enough, the outer shell of the spore is the hardest organic compound to exist in nature." -source https://www.explorebigsky.com/are-mushrooms-from-outer-space
+- ⚡ Fun fact: "Mushroom spores are electron-dense and can survive in the vacuum of space. Additionally, their outer layer is actually metallic and of a purple hue, which naturally allows the spore to deflect ultraviolet light. And as if all this wasn’t unique enough, the outer shell of the spore is one of the hardest organic compounds to exist in nature." -source https://www.explorebigsky.com/are-mushrooms-from-outer-space
